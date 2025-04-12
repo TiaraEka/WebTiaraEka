@@ -1,2 +1,0 @@
-# WebTiaraEka
-Web Lebaran Tiara
